@@ -1,4 +1,4 @@
-## Oie 🤙🏾, Eu sou a Regina!
+## Oie 🤙🏾, Eu sou a Re!
 
 <div>
 
